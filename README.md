@@ -6,4 +6,4 @@
 - 💬 Ask me about ............ 
 - 📫 How to reach me: @santhoshkala
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: 😄😄😄
